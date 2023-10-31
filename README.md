@@ -1,1 +1,1 @@
-[![Portafolio](dsadasds.png)](https://www.gineeesss.github.io)
+[![Portafolio](dsadasds.png)](https://gineeesss.github.io)
